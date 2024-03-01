@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Data Science at Meru University Of Science And Technology
 - 💞️ I’m looking to collaborate on my skills
 - 📫 How to reach me gmail mergeradera721@gmail.com
-- 😄 Pronouns: Halleluya
+- 😄 Pronouns: Through God anything is possible
 - ⚡ Fun fact: i love internet
 
 <!---
